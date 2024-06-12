@@ -1,4 +1,4 @@
 - 🙋🏻‍♂️ Hi, I’m Pranav Shewale from India
 - 💁🏻‍♂️ I’m interested in Python, AI-ML
-- 🌱 Eagre to learn and connect
+- 🌱 Eager to learn and connect
 - 📫 pranavprashantshewale@gmail.com
