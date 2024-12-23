@@ -1,4 +1,3 @@
 - LinkedIn - https://www.linkedin.com/in/pranav-shewale/
-- Youtube - https://www.youtube.com/@Pranawayyy (daily study streams)
 - Kaggle - https://www.kaggle.com/pranavprashant4 (yet to work on it)
 - Email - pranavprashantshewale@gmail.com
