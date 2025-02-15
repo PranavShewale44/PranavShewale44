@@ -1,3 +1,4 @@
 - LinkedIn - https://www.linkedin.com/in/pranav-shewale/
-- Kaggle - https://www.kaggle.com/pranavprashant4 (yet to work on it)
-- Email - pranavprashantshewale@gmail.com
+- X - https://x.com/pra_bhuu
+- Kaggle - https://www.kaggle.com/pranavprashant4 
+- Reach out - pranavprashantshewale@gmail.com
